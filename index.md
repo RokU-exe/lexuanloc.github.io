@@ -1,5 +1,3 @@
-Here you can say lots of fun things about your site.
+s3955317_NONE4763_A2
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+I declare that in submitting all work for this assessment I have read, understood and agree to the content and expectations of the Assessment declaration.
